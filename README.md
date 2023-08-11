@@ -1,1 +1,1 @@
-Join my discord for questions: https://discord.gg/RdVX95ysyA
+Join my discord for questions: https://discord.com/invite/hktVzrff54
